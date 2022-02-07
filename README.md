@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Mikey!
+- 📫 Add me on discord Mikey!#0001
+- ✨ Join my discord server https://discord.gg/groups (RBX Groups)
