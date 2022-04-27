@@ -1,3 +1,1 @@
-- 👋 Hi, I’m Mikey!
-- 📫 Add me on discord Mikey!#0001
-- ✨ Join my discord server https://discord.gg/groups (RBX Groups)
+[![Discord Presence](https://lanyard.cnrad.dev/api/916876390656249856)](https://discord.com/users/916876390656249856)
